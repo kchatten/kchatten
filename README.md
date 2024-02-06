@@ -7,6 +7,6 @@
 ### Coding
 ### Chilling...
 
-### C's? Sea's? Get it?
+### C's? Seas? Get it?
 
 ### I'm currently improving my web development skillset with the help of all the wonderful individuals at Code-Youth!
