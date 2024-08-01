@@ -9,4 +9,4 @@
 
 ### Seas? C's? Get it?
 
-### I'm currently improving my IT Support skillset with the help of all the wonderful individuals at NPower!
+### I'm currently improving my IT skillset pursuing the CompTIA+ and CCST Cybersecurity certifications!
